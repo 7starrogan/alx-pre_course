@@ -1,1 +1,2 @@
 blessed day
+cool day
